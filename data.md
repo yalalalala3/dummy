@@ -37,6 +37,7 @@
 🏰 Medieval suits of armor
 🎡 Ferris wheels
 🍉 Juicy watermelons
+😭 Sad man crying
 🎭 Theater stage curtains
 🏕️ Cozy campfires
 🍭 Sugary candy canes
