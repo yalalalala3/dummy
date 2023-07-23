@@ -163,3 +163,4 @@
 🎮 Competitive esports tournaments
 🏰 Fairy tale towers
 🍔 Stacked cheeseburgers
+🪂 Landing Parachute
